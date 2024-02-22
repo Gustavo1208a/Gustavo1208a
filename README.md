@@ -1,6 +1,6 @@
 ### Bem-vindo ao meu perfil! 👋
 
-**Aoba, eu sou o gustavo1208a, um desenvolvedor back-end.
+**Aoba, eu sou o gustavo1208a, um desenvolvedor back-end.**
 
 Here are some ideas to get you started:
 
