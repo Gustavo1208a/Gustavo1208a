@@ -21,6 +21,6 @@
 
 ## Vamos Conectar!
 
-- [Discord]([https://discord.gg/](https://discord.gg/jwbHra5U2Q))
+- [Discord](https://discord.gg/jwbHra5U2Q)
 
 ⭐️ Obrigado por visitar o meu perfil! ⭐️
